@@ -1,1 +1,1 @@
-# comparitive-religion
+# comparative-religion
